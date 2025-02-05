@@ -16,4 +16,4 @@ Moka oshiete kureta
 Ironna mita ne ni nareru, opurina nddate
 Dore dore~
 
-Con amor, Ron Damón.
+Te quiere, Ron Damón.
