@@ -12,7 +12,7 @@ Gran es un furro gay
 
 
 Chavo...
-Moka oshiete kureta
+Moka-chan oshiete kureta
 Ironna mita ne ni nareru, opurina nddate
 Dore dore~
 
